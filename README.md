@@ -27,5 +27,6 @@
 ### Задание 3
 
 
-![Screenshot_153](https://github.com/user-attachments/assets/a1ae551d-ed5e-4bc3-a385-4e67c01548c4)
+![Screenshot_156](https://github.com/user-attachments/assets/e7f81937-9fbe-4b6f-ac92-186acfa16bfe)
+
 
